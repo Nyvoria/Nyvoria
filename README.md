@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nyvoria
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Learning Coding
+- 🌱 I’m currently Learning Coding
 - 💞️ I’m looking to collaborate on Project 
 - 📫 How to reach me "Message Me"
 - 😄 Pronouns: Its Nyvoria
